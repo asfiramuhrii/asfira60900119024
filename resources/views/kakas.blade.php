@@ -1,1 +1,1 @@
-//kenapa belajar kakas
+//menambah penegetahuan
